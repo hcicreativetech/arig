@@ -4,3 +4,5 @@ My favorite medium that I have used is programming. When I was initially introdu
 
 ![Screen-Shot-2018-03-14-at-5.02.48-PM](Screen-Shot-2018-03-14-at-5.02.48-PM.png)
 
+![reflection_gif](reflection_gif.gif)
+
